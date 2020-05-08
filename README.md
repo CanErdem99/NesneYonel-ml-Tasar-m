@@ -1,1 +1,0 @@
-# NesneYonel-ml-Tasar-m
